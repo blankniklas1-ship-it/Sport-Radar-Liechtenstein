@@ -1,1 +1,0 @@
-# Sport-Radar-Liechtenstein
